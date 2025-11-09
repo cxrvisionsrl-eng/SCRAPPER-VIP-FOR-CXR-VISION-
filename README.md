@@ -1,0 +1,2 @@
+# SCRAPPER-VIP-FOR-CXR-VISION-
+CXR VISION PREZINTĂ  LANDING PAGE COPY – “AI Lead Engine pentru Agenți Imobiliari” 🏠 HEADLINE (Hook)  Generează leaduri imobiliare reale, zilnic — fără reclame, fără costuri inițiale, plătești doar dacă livrăm.  💬 SUBHEADLINE (Value Proposition)  Noi găsim proprietarii și cumpărătorii activi din zona ta, îi extragem automat și îi transformăm 
